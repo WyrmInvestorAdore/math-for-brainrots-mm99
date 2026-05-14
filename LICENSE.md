@@ -1,4 +1,4 @@
-#  
+#  math for brainrots automatic Script is the best math for brainrots Script, featuring one-hit kill and anti-ban. Safe and powerful for all your needs.
 
 
 
